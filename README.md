@@ -51,6 +51,32 @@ In 1978, the church received its current name in honor of former pastor and civi
 
 The church is a National historic Landmark (1974) and listed on the National Register of Historic Places (1980).
 
+## Rosa Parks Museum
+The Rosa Parks Museum in Montgomery, Alabama is a historical and educational institution dedicated to the life and legacy of activist Rosa Parks, a key figure in the civil rights movement.
+
+The museum was opened on December 1, 2000 on the territory of the former Empire Theatre in the city center. The theater has been the site of many civil rights meetings and rallies, including the 1955 mass meeting that provoked Montgomery Bus Boycott.
+
+The museum features information, exhibits and some artifacts from Montgomery Bus Boycott. Among them: the original Rosa Parks arrest document, a 1950s Montgomery city bus, original artwork, court documents and police reports.
+
+The museum also offers educational programs and scientific resources for K–12, adults, and lifelong learners. It hosts various cultural events, educational programs, and temporary exhibitions to raise social awareness, encourage cultural appreciation, and promote peace.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
