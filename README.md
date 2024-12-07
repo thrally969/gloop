@@ -16,3 +16,16 @@ Some places Montgomery (Alabama) is famous for are
 **Montgomery Museum of Fine Arts.** The museum displays an extensive collection of American, African, and Southern regional art.
 
 **Montgomery Performing Arts Center.** Modern venue, where performers of different genres perform: Broadway, classical music, popular performers.
+
+## Old Alabama Town
+Collection of restored 19th- and 20th-century structures reflecting the lives of the people who setled and developed central Alabama.
+
+She stretches along six blocks in the heart of historical downtown Montgomery, Alabama.
+
+Town is divided into two sections:
+
+**Working Block**. Here you can visit the blacksmith shop, spinner/weaver, cotton gin, printing shop and mill to see how central Alabama residents worked in the 19th and early 20th centuries.
+
+**Living Block**. There is a one-room school building, a grocery store, a church, a shotgun house and a doctor's office.
+
+Old Alabama Town was developed and administered by the Landmarks Foundation of Montgomery, a non-profit corporation that came to life in 1967.
