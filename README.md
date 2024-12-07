@@ -29,3 +29,29 @@ Town is divided into two sections:
 **Living Block**. There is a one-room school building, a grocery store, a church, a shotgun house and a doctor's office.
 
 Old Alabama Town was developed and administered by the Landmarks Foundation of Montgomery, a non-profit corporation that came to life in 1967.
+
+## Civil Rights Memorial
+
+Civil Rights Memorial in Montgomery, Alabama is a monument to 40 victims of the struggle for equality between 1954 and 1968.
+
+The memorial was designed by Maya Lin and inaugurated in 1989. It is a circular black granite table on which the names and dates of death of 40 people are indicated.
+
+The Civil Rights Memorial Center is located next to the memorial. It features expositions, a 56-seat theater, a classroom for educational events and an interactive tolerance wall.
+
+The memorial is open to the public 24 hours a day and seven days a week. There is a small fee for adults, and children are accepted free of charge.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
