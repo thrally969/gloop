@@ -40,7 +40,16 @@ The Civil Rights Memorial Center is located next to the memorial. It features ex
 
 The memorial is open to the public 24 hours a day and seven days a week. There is a small fee for adults, and children are accepted free of charge.
 
+## Dexter Avenue King Memorial Baptist Church
+Dexter Avenue King Memorial Baptist Church is a historic African American church in Montgomery, Alabama.
 
+It was founded in 1877. The original congregation consisted of freed slaves from nearby plantations.
+
+The church was used as a meeting place for leaders of the civil rights movement, including Martin Luther King Jr., who served as its pastor from 1954 to 1960.
+
+In 1978, the church received its current name in honor of former pastor and civil rights activist Dr. Martin Luther King Jr.
+
+The church is a National historic Landmark (1974) and listed on the National Register of Historic Places (1980).
 
 
 
