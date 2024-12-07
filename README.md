@@ -60,7 +60,12 @@ The museum features information, exhibits and some artifacts from Montgomery Bus
 
 The museum also offers educational programs and scientific resources for K–12, adults, and lifelong learners. It hosts various cultural events, educational programs, and temporary exhibitions to raise social awareness, encourage cultural appreciation, and promote peace.
 
+## Alabama State Capitol
+The Alabama State Capitol is the state capitol building for Alabama, located in Montgomery on Capitol Hill, originally known as Goat Hill. It serves as a significant historical landmark and is listed on the National Register of Historic Places as the First Confederate Capitol. The building was declared a National Historic Landmark on December 19, 1960.
 
+The Alabama State Capitol has played a crucial role in the state’s political history. It was not only the site where the state government convened but also served as the first capital of the Confederate States of America in 1861. The Provisional Constitution of the Confederate States was drafted here during a convention held in its Senate Chamber. Furthermore, it was at this location that Dr. Martin Luther King Jr. delivered his famous speech “How Long, Not Long” at the conclusion of the Selma to Montgomery march in 1965, which was pivotal in leading to the Voting Rights Act of that same year.
+
+Today, while it houses offices for the governor and other executive branch officials, much of its function is that of a museum dedicated to state history and politics. The Capitol has undergone various restorations over time, with significant rehabilitation completed in 1992 to preserve its historical integrity.
 
 
 
