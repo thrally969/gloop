@@ -172,7 +172,7 @@ This forest resembles a dense, humid environment, perhaps in a temperate or subt
 
 Laurel forests (Laurisilva): Such forests are found, for example, in the Canary Islands, the Azores or in some parts of Madeira. These forests have ancient tree species, whose roots and branches are often covered with moss.
 
-Temperature rain forests: Regions like the Pacific Northwest of the United States (such as Olympic National Park) also have similar scenes.
+Temperate rain forests: Regions like the Pacific Northwest of the United States (such as Olympic National Park) also have similar scenes.
 
 Forests with a predominance of beech or oak: If this is Europe, then these can be forests with beech (Fagus) or oak (Quercus), growing in conditions of shade and humidity.
 
