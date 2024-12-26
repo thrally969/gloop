@@ -210,7 +210,7 @@ In essence, temperate rainforests are a testament to nature's ability to create 
 
 # Gloop VII
 
-## Analysis of Song Lyrics - "Teenage Dirtbag" by Girls Aloud
+### Analysis of Song Lyrics "Teenage Dirtbag" by Girls Aloud
 
 **"Man, I feel like mold"**
 This line sets a dismal tone. The comparison to mold suggests a feeling of decay and neglect. It evokes the imagery of being trapped in an unpleasant environment, highlighting a deep-seated sense of worthlessness. The speaker feels like they are in a stagnant state, unable to thrive or grow.
